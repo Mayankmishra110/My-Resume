@@ -1,6 +1,4 @@
 Click below to download my resume.
+[Mayank_Mishra_Resume.pdf](https://github.com/Mayankmishra110/My-Resume/files/11120515/Mayank_Mishra_Resume.pdf)
 
-[Mayank_Mishra_Resume.pdf](https://github.com/Mayankmishra110/My-Resume/files/10832084/Mayank_Mishra_Resume.pdf)
-
-
-![Screenshot (220)](https://user-images.githubusercontent.com/96439214/221375548-b32d7ee4-6394-44e1-8765-59e2e03fcc98.png)
+![Screenshot (227)](https://user-images.githubusercontent.com/96439214/229086299-4544be40-e252-40d8-8de6-71b119a26530.png)
