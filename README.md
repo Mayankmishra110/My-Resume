@@ -7,4 +7,4 @@ Click below to download my resume.
 
 
 
-![Screenshot (562)](https://github.com/Mayankmishra110/My-Resume/assets/96439214/deb2c473-d2d9-4486-b5dc-5b4ce864b15a)
+![Screenshot (562)](https://github.com/Mayankmishra110/My-Resume/assets/96439214/7da88858-aa2d-40af-9843-c4d85d52f43e)
