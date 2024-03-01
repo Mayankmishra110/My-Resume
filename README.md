@@ -3,7 +3,7 @@ Click below to download my resume.
 
 
 
-[Mayank_Mishra_resume_FullStack.pdf](https://drive.google.com/file/d/1IbWSarD-QIZyxEkptUFKZrA_sdjVF6HQ/view?usp=sharing)
+(https://drive.google.com/file/d/1IbWSarD-QIZyxEkptUFKZrA_sdjVF6HQ/view?usp=sharing)
 
 
 
